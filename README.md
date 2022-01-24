@@ -1,6 +1,6 @@
-## YOUR FORK PRIVATE
+## YOUR CLICK THIS USE TEMPLATE
 
-Please click fork private
+Please click template
 
 
 ## Ultroid Workflows Faster Premium
