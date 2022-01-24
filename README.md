@@ -1,4 +1,4 @@
-## YOUR CLICK THIS USE TEMPLATE
+## YOUR CLICK USE THIS TEMPLATE
 
 Please click template
 
